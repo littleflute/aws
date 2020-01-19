@@ -1,3 +1,7 @@
-## [v0.0.2](https://github.com/littleflute/10wen/edit/master/2020/01/19/readme.md) [..](..)
+## [v0.0.5](https://github.com/littleflute/10wen/edit/master/2020/01/19/readme.md) [..](..)
 ## [年底幽默笑话：《 短信！ 》](https://mp.weixin.qq.com/s/Jb_4mJRAik8UBDfPCzgMxQ)
 ## [没有不幸福，只有不知足！](https://mp.weixin.qq.com/s/CvAiB-2mXax1BQHnOcIl2g)
+## [做人就像拆字 （太经典了!）](https://mp.weixin.qq.com/s/cHnc8ttf7nz_4e6QZYhZcw)
+## [世上所有的病，都是情绪打了败仗（深度好文）](https://mp.weixin.qq.com/s/3LfLvYdRdEIt9dstU2XRkw)
+## [30个最经典的世界文学典故（ 涨知识！）](https://mp.weixin.qq.com/s/yTnXycJIR0kl435cZ1xtTQ)
+## [非常经典的一段话！](https://mp.weixin.qq.com/s/VId-5MZUR5WxXxmJqz_v2g)
